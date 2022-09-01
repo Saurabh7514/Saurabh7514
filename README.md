@@ -1,10 +1,4 @@
 - 👋 Hi, I’m @Saurabh7514
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Saurabh7514/Saurabh7514 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- Phone: 9627412609 (WhatsApp)
+- Email: saurabhkumarchauhan.1996@gmail.com
+-skype: https://join.skype.com/invite/vgfSBngvZfTg (9627412609)
